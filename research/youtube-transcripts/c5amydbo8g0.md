@@ -1,0 +1,5 @@
+# Transcript for C5amYDbo8G0
+
+Source: https://www.youtube.com/watch?v=C5amYDbo8G0
+
+i think the great marketing is far more about brains than it is about budget i don't think it's the person who has the biggest budget in the room i talk to big companies all the time who are as who are as as sort of stuck as smaller brands so it's not about who has the most money i think it's who thinks most strategically and i think it's who ultimately knows their customers best and can be inspired by them katie sobel who worked in just until recently at plum organics told me that whether it's product development or messaging it starts with an intimate knowledge of in camaraderie with our consumer as a parent and as a person i love this so much this camaraderie with so important again you're not marketing to a segment you're marketing to people you're marketing to humans
